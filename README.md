@@ -22,7 +22,7 @@ For detailed documentation, please [Click Here!](https://drive.google.com/file/d
 
 ### 📧 Contact
 
-For any queries or support, please reach out to me at [My Mail](mailto:harshag3106@gmail.com).
+For any queries or support, please reach out to me at [Vinay K](mailto:vinay2182001@gmail.com).
 
 ### 🤝 Contributions
 
